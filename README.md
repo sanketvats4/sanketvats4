@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @sanketvats4
 - 👀 I’m interested in Space Science
 - 🌱 I’m currently learning Python and Mathematics
-- 💞️ I’m looking to collaborate on Python
+- 💞️ I’m looking for...............excellence in astronomy and some billions of dollars.
 - 📫 How to reach me- iph10009.23@bitmesra.ac.in
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: You can kill yourself!!
+- ⚡ Fun fact: You CAN kill yourself!
 
 <!---
 sanketvats4/sanketvats4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
