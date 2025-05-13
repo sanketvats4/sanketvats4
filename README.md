@@ -5,6 +5,7 @@
 - 📫 How to reach me- iph10009.23@bitmesra.ac.in
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: You CAN kill yourself!
+- As McGreggor said "fooking foolya"...
 
 <!---
 sanketvats4/sanketvats4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
